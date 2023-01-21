@@ -1,1 +1,1 @@
-amer bank
+amr bank
